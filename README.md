@@ -25,3 +25,13 @@ Bài tập ngày 3-03-2025
 ![4ed7e9f8-7786-49ef-aadf-6e9452d50d5b](https://github.com/user-attachments/assets/ca09a905-ca72-4cd8-9b6d-131574287d13)
 
 ![f49ce1c6-e901-4bc3-9d5d-7142441ae844](https://github.com/user-attachments/assets/b8c6bdb1-142a-4f12-ac7c-c3a7445c1c44)
+
+Bài tập ngày 04-03-2025
+![Ảnh chụp màn hình 2025-03-04 110813](https://github.com/user-attachments/assets/be5bbea5-ace6-4be1-b8a3-341dd4aecd4d)
+
+![Ảnh chụp màn hình 2025-03-04 110832](https://github.com/user-attachments/assets/53c6675d-bead-44f7-8d58-fa5b8d857acf)
+
+![Ảnh chụp màn hình 2025-03-04 110854](https://github.com/user-attachments/assets/cea31cad-79ce-4055-aa7b-3afa7bdef625)
+
+
+
