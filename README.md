@@ -33,5 +33,17 @@ Bài tập ngày 04-03-2025
 
 ![Ảnh chụp màn hình 2025-03-04 110854](https://github.com/user-attachments/assets/cea31cad-79ce-4055-aa7b-3afa7bdef625)
 
+Bài tập ngày 18-03-2025
+![Ảnh chụp màn hình 2025-03-18 102825](https://github.com/user-attachments/assets/65263828-a911-4f34-a96a-cec4c576d320)
+
+![Ảnh chụp màn hình 2025-03-18 102838](https://github.com/user-attachments/assets/7b15a6d4-b56f-4926-93b0-d907dbf5233e)
+
+![Ảnh chụp màn hình 2025-03-18 102845](https://github.com/user-attachments/assets/1d42f14d-f48c-4401-8678-cec0d68d580b)
+
+![image](https://github.com/user-attachments/assets/6173150e-9848-40fd-85dd-e4cf72eaa0fc)
+
+![image](https://github.com/user-attachments/assets/81c0f913-51cb-47b8-8b80-9b1ef99a3def)
+
+
 
 
