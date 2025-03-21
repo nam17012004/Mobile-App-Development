@@ -44,6 +44,12 @@ Bài tập ngày 18-03-2025
 
 ![image](https://github.com/user-attachments/assets/81c0f913-51cb-47b8-8b80-9b1ef99a3def)
 
+Bài tập ngày 21-03-2025
+
+![Ảnh chụp màn hình 2025-03-21 141153](https://github.com/user-attachments/assets/ceb68caa-5c5e-422d-81a2-28c24f9bb290)
+
+![Ảnh chụp màn hình 2025-03-21 141146](https://github.com/user-attachments/assets/fde64b0c-4c52-4fb4-a4f6-42e4a2d6d5df)
+
 
 
 
