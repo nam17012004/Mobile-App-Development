@@ -33,6 +33,18 @@ Bài tập ngày 04-03-2025
 
 ![Ảnh chụp màn hình 2025-03-04 110854](https://github.com/user-attachments/assets/cea31cad-79ce-4055-aa7b-3afa7bdef625)
 
+Bài tập ngày 06-03-2024
+
+![37509ea6-485a-475c-ac49-1f880fa50222](https://github.com/user-attachments/assets/563936ae-7d0c-4f44-898c-7d90a293a117)
+
+![9a2420da-840e-4d55-ba38-ce15b57ae7ac](https://github.com/user-attachments/assets/a3ed0be7-9288-48ae-b559-8df843b85601)
+
+![43e914cf-085b-4385-9d87-2e92fdb392ca](https://github.com/user-attachments/assets/a126e993-fc72-4309-8e64-b178d32913d1)
+
+![7939832b-f8a2-465d-98e4-52ee0d6bf695](https://github.com/user-attachments/assets/d2d460d8-3073-445f-9a70-68d965ee0fe5)
+
+![9e9d4ffc-a9ba-4bb1-91d0-56c999b3b29b](https://github.com/user-attachments/assets/3c0d88e9-dcc6-4f7a-a348-ba26d2cb474c)
+
 Bài tập ngày 18-03-2025
 ![Ảnh chụp màn hình 2025-03-18 102825](https://github.com/user-attachments/assets/65263828-a911-4f34-a96a-cec4c576d320)
 
@@ -48,7 +60,17 @@ Bài tập ngày 21-03-2025
 
 ![Ảnh chụp màn hình 2025-03-21 141153](https://github.com/user-attachments/assets/ceb68caa-5c5e-422d-81a2-28c24f9bb290)
 
-![Ảnh chụp màn hình 2025-03-21 141146](https://github.com/user-attachments/assets/fde64b0c-4c52-4fb4-a4f6-42e4a2d6d5df)
+Bài tập ngày 28-03-2024
+
+![37509ea6-485a-475c-ac49-1f880fa50222](https://github.com/user-attachments/assets/563936ae-7d0c-4f44-898c-7d90a293a117)
+
+![9a2420da-840e-4d55-ba38-ce15b57ae7ac](https://github.com/user-attachments/assets/a3ed0be7-9288-48ae-b559-8df843b85601)
+
+![43e914cf-085b-4385-9d87-2e92fdb392ca](https://github.com/user-attachments/assets/a126e993-fc72-4309-8e64-b178d32913d1)
+
+![7939832b-f8a2-465d-98e4-52ee0d6bf695](https://github.com/user-attachments/assets/d2d460d8-3073-445f-9a70-68d965ee0fe5)
+
+![9e9d4ffc-a9ba-4bb1-91d0-56c999b3b29b](https://github.com/user-attachments/assets/3c0d88e9-dcc6-4f7a-a348-ba26d2cb474c)
 
 
 
