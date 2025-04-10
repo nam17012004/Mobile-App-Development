@@ -72,6 +72,14 @@ Bài tập ngày 28-03-2025
 
 ![9e9d4ffc-a9ba-4bb1-91d0-56c999b3b29b](https://github.com/user-attachments/assets/3c0d88e9-dcc6-4f7a-a348-ba26d2cb474c)
 
+Bài tập ngày 10-04-2025
+
+![anh6](https://github.com/user-attachments/assets/f9c2708e-6507-4567-90f7-9cbfc6ef93f5)
+
+![anh7](https://github.com/user-attachments/assets/058b1973-e939-4168-9126-ee4ace657b18)
+
+![anh10](https://github.com/user-attachments/assets/7a270892-8363-4007-be70-462136351f0b)
+
 
 
 
